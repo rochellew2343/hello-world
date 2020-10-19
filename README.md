@@ -1,2 +1,3 @@
 # hello-world
-learning~
+
+I like games and live in sports anime hell.
